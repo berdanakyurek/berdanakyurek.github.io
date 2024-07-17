@@ -1,1 +1,1 @@
-# berdanakyurekk.github.io
+# berdanakyurek.github.io
